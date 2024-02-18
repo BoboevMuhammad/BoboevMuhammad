@@ -6,9 +6,9 @@
 
 💞️ I’m looking to collaborate on Google
 
-📫 How to reach me in moble phone
+📫 How to reach me in my moble phone?
 
-😄 Pronouns: gorgeous fascinating person
+😄 Pronouns: gorgeous and fascinating person with a lot of capabilities
 
 
 <!---
