@@ -2,7 +2,7 @@
 
 👀 I’m interested in IT
 
-🌱 I’m currently learning javascript with html
+🌱 I’m currently learning javascript with python
 
 💞️ I’m looking to collaborate on Google
 
