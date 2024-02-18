@@ -1,8 +1,13 @@
 👋 Hi, I’m @BoboevMuhammad
+
 👀 I’m interested in IT
+
 🌱 I’m currently learning javascript with html
+
 💞️ I’m looking to collaborate on Google
+
 📫 How to reach me in moble phone
+
 😄 Pronouns: gorgeous fascinating person
 
 
